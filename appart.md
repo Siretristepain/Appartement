@@ -147,6 +147,21 @@ Désavantages :
 - meublé
 - un peu petit
 
+## Non meublé Chateaugay **particulier**
+
+Voir : [annonce](https://www.leboncoin.fr/ad/locations/2817949268)
+
+![photo](./images/chateaugay_particulier.png)
+
+Prix : 550€
+
+Contact : 07 66 64 03 63
+
+Avantages :
+
+- non meublé
+- parking proche
+- 2 chambres
 
 ## Autres :
 
