@@ -28,6 +28,8 @@ Désaventages :
 
 ## Appartement 2 pièces 56m2 Riom
 
+> Déjà loué ! Rappeler vendredi 16 en fin de journée au cas où. 
+
 **MA NOTE** : 9/10
 
 Voir : [annonce](https://www.leboncoin.fr/ad/locations/2799089562)
@@ -125,6 +127,23 @@ Désaventages :
 
 - un peu sombre
 - pas d'info sur la classe énergétique
+
+## Meublé centre ville Chatel-Guyon **particulier**
+
+Voir : [annonce](https://www.leboncoin.fr/ad/locations/2479444855)
+
+Prix : 560€
+
+Contact : 06 87 54 50 70 (Justine)
+
+Avantages : 
+
+- Accepte les étudiants
+
+Désavantages :
+
+- meublé
+- un peu petit
 
 
 ## Autres :
