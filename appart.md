@@ -132,6 +132,8 @@ Désaventages :
 
 Voir : [annonce](https://www.leboncoin.fr/ad/locations/2479444855)
 
+![photo](./images/meuble_chatel_particulier.png)
+
 Prix : 560€
 
 Contact : 06 87 54 50 70 (Justine)
